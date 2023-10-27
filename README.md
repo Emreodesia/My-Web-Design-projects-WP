@@ -1,4 +1,5 @@
 
-![Uploading Sezer Asp taslak.PNG…]()
+![Uploading x.PNG…]()
+
 
 
