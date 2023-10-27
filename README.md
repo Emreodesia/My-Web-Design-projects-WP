@@ -1,4 +1,3 @@
 
-![Uploading x.PNG…]()
 
 
