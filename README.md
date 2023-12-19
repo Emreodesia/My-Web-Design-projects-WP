@@ -9,7 +9,6 @@
 -TravelOdesia
 ![To0](https://github.com/Emreodesia/My-Web-Design-projects-WP/assets/115417234/d78c2391-b36a-4c36-84c3-97e6e5bc6186)
 -
--![Web](https://github.com/Emreodesia/My-Web-Design-projects-WP/assets/115417234/f01c49d5-227b-47ec-b9c1-fc1ab7a7ffeb)
 
 
 
